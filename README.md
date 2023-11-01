@@ -1,6 +1,6 @@
 Aoba Tchê Tchê... 🐂🤠
 
-To estudando 😢, no Alura https://www.alura.com.br/
+To estudando 😢, no [Alura] https://www.alura.com.br/
 
 I hate study
 
